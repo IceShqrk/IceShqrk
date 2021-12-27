@@ -1,7 +1,7 @@
 - Hi, I’m @IceShqrk
 - I’m interested in playing video games
 - osu! profile: https://osu.ppy.sh/users/9459674
-- Twitter: https://twitter.com/IceShqrktwitter/
+- Twitter: https://twitter.com/IceShqrk/
 - Youtube: www.youtube.com/c/IceShark
 - Discord: Ice Shark#3072
 
